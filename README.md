@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Marissa Clemens
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning how to become a UX/UI designer.
-- 📫 How to reach me is by my email: margar817@icloud.com.
+- 📫 How to reach me is by my email: marissac81700@gmail.com.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I use to be a synchronized swimmer.
 
